@@ -1,6 +1,6 @@
-### Hello, my name is Adhi Ardiansyah 👋
+## Hello, my name is Adhi Ardiansyah 👋
 
-## Instagram Filter Creator, Web Developer, Designer.
+### Instagram Filter Creator, Web Developer, Designer.
 
 ![Profile views](https://gpvc.arturio.dev/adhiardiansyah)
 

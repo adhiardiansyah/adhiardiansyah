@@ -1,16 +1,44 @@
-### Hi there 👋
+### Hello, my name is Adhi Ardiansyah 👋
 
-<!--
-**adhiardiansyah/adhiardiansyah** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## I'm a Instagram Filter Creator, Web Developer, Designer.
 
-Here are some ideas to get you started:
+![Profile views](https://gpvc.arturio.dev/adhiardiansyah)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 💻 I like developing website, especially focus on the backend.
+- 📱 I also like managing social media account.
+- ✉️ Contact me on [adhiardiansyah23@gmail.com][email]!
+
+### Connect with me:
+
+[<img align="left" alt="adhiardiansyah" width="22px" src="https://raw.githubusercontent.com/iconic/open-iconic/master/svg/globe.svg" />][website]
+[<img align="left" alt="Adhi Ardiansyah | YouTube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
+[<img align="left" alt="Adhi Ardiansyah | Twitter" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />][twitter]
+[<img align="left" alt="Adhi Ardiansyah | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
+[<img align="left" alt="Adhi Ardiansyah | Instagram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />][instagram]
+
+<br />
+
+### Languages and Technologies:
+
+![HTML](https://img.shields.io/badge/html5%20-%23E34F26.svg?&style=for-the-badge&logo=html5&logoColor=white) ![CSS](https://img.shields.io/badge/css3%20-%231572B6.svg?&style=for-the-badge&logo=css3&logoColor=white)
+
+![PHP] (https://img.shields.io/badge/PHP-777BB4?style=for-the-badge&logo=php&logoColor=white) ![JavaScript] (https://img.shields.io/badge/JavaScript-F7DF1E?style=for-the-badge&logo=javascript&logoColor=black)
+
+![Bootstrap](https://img.shields.io/badge/bootstrap%20-%23563D7C.svg?&style=for-the-badge&logo=bootstrap&logoColor=white) ![CodeIgnier](https://img.shields.io/badge/-CodeIgniter-black?style=for-the-badge&logo=codeigniter) ![Laravel](https://img.shields.io/badge/Laravel-FF2D20?style=for-the-badge&logo=laravel&logoColor=white)
+
+<br />
+<br />
+
+---
+
+<p align="center"><img align="center" src="https://github-readme-stats.vercel.app/api/top-langs?username=adhiardiansyah&show_icons=true&locale=en&layout=compact" alt="adhiardiansyah" /></p>
+
+<p align="center">&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=adhiardiansyah&show_icons=true&locale=en" alt="adhiardiansyah" /></p>
+
+<p align="center"><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=adhiardiansyah&" alt="adhiardiansyah" /></p>
+
+[website]: https://adhiardiansyah.github.io
+[twitter]: https://twitter.com/adhiardiansyah_
+[youtube]: https://www.youtube.com/channel/UCAjuwpJc1k3VL_7oFwVzLOg
+[instagram]: https://instagram.com/adhi_ardiansyah
+[linkedin]: https://linkedin.com/in/adhiardiansyah

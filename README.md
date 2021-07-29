@@ -6,7 +6,7 @@
 
 - 💻 I like developing website, especially focus on the backend.
 - 📱 I also like managing social media account.
-- ✉️ Contact me on [adhiardiansyah23@gmail.com][email]!
+- ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Connect with me:
 

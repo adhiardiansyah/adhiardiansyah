@@ -34,7 +34,7 @@
 
 <p align="center"><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=adhiardiansyah&" alt="adhiardiansyah" /></p>
 
-[website]: https://adhiardiansyah.github.io
+[website]: https://adhiardiansyah.xyz
 [twitter]: https://twitter.com/adhiardiansyah_
 [youtube]: https://www.youtube.com/channel/UCAjuwpJc1k3VL_7oFwVzLOg
 [instagram]: https://instagram.com/adhi_ardiansyah

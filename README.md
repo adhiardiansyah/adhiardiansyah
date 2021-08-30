@@ -4,8 +4,8 @@
 
 ![Profile views](https://gpvc.arturio.dev/adhiardiansyah)
 
-- 💻 I like developing website, especially focus on the backend.
-- 📱 I also like managing social media account.
+- 💻 I'm interested in website development, especially focus on the back end.
+- 📱 I'm also interested in managing social media accounts.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Connect with me:

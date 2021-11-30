@@ -1,6 +1,6 @@
 ## Hello, my name is Adhi Ardiansyah 👋
 
-### Instagram Filter Creator, Software Engineer, Designer.
+### Software Engineer, Designer, Instagram Filter Creator.
 
 ![Profile views](https://gpvc.arturio.dev/adhiardiansyah)
 

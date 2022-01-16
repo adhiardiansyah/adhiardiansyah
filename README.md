@@ -24,6 +24,8 @@
 
 ![Bootstrap](https://img.shields.io/badge/bootstrap%20-%23563D7C.svg?&style=for-the-badge&logo=bootstrap&logoColor=white) ![CodeIgnier](https://img.shields.io/badge/-CodeIgniter-black?style=for-the-badge&logo=codeigniter) ![Laravel](https://img.shields.io/badge/Laravel-FF2D20?style=for-the-badge&logo=laravel&logoColor=white)
 
+![Git](https://img.shields.io/badge/Git-F05032?style=for-the-badge&logo=git&logoColor=white) ![Docker](https://img.shields.io/badge/Docker-2291E6?style=for-the-badge&logo=docker&logoColor=white)
+
 ---
 
 <p align="center"><img align="center" src="https://github-readme-stats.vercel.app/api/top-langs?username=adhiardiansyah&show_icons=true&locale=en&layout=compact" alt="adhiardiansyah" /></p>

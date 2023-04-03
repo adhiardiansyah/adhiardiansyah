@@ -36,6 +36,6 @@
 
 [website]: https://adhiardiansyah.github.io
 [twitter]: https://twitter.com/adhiardiansyah_
-[youtube]: https://www.youtube.com/channel/UCAjuwpJc1k3VL_7oFwVzLOg
+[youtube]: https://www.youtube.com/@adhiardiansyah
 [instagram]: https://instagram.com/adhi_ardiansyah
 [linkedin]: https://linkedin.com/in/adhiardiansyah

@@ -1,7 +1,6 @@
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
-- 📱 I'm also interested in managing social media accounts.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Connect with me:

@@ -1,0 +1,30 @@
+name: Update Readme
+
+on:
+  workflow_dispatch:
+  schedule:
+    - cron:  '0 1,4,6,13,16,19,22 * * *'
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v4
+    - name: Use Node.js
+      uses: actions/setup-node@v2
+      with:
+        node-version: '18'
+    - name: Install dependencies
+      run: |
+        npm ci
+    - name: Run build command
+      run: |-
+        npm run build
+    - name: Commit and push if changed
+      run: |-
+        git add .
+        git diff
+        git config --global user.email "adhiardiansyah23@users.noreply.github.com"
+        git config --global user.name "Adhi Ardiansyah"
+        git commit -m "docs: update greeting and quote" -a || echo "No changes to commit"
+        git push

@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;I enjoy life when things are happening. I don't care if it's good things or bad things. That means you're alive.&quot;</em> <br>
-— Joan Rivers
+<em>&quot;After a day of hard work, reward yourself with moments of peace and joy. You deserve it.&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

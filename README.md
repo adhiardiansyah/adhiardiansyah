@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;You're never given a dream without also being given the power to make it true.&quot;</em> <br>
+— Richard Bach
 
 ### Connect with me:
 

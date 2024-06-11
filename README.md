@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;You will have bad times, but they will always wake you up to the stuff you weren't paying attention to.&quot;</em> <br>
+— Robin Williams
 
 ### Connect with me:
 

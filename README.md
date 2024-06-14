@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Be happy in the moment, that's enough. Each moment is all we need, not more.&quot;</em> <br>
+— Mother Teresa
 
 ### Connect with me:
 

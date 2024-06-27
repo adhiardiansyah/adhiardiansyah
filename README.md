@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;It is only depth of character that determines the profundity with which we face life.&quot;</em> <br>
+— Ming-Dao Deng
 
 ### Connect with me:
 

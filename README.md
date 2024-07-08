@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart.&quot;</em> <br>
+— Helen Keller
 
 ### Connect with me:
 

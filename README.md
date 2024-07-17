@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;You cannot swim for new horizons until you have courage to lose sight of the shore.&quot;</em> <br>
+— William Faulkner
 
 ### Connect with me:
 

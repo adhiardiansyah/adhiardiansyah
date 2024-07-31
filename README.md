@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;It is not the knowing that is difficult, but the doing. &quot;</em> <br>
+— Chinese Proverb
 
 ### Connect with me:
 

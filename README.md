@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The more you feed your mind with positive thoughts, the more you can attract great things into your life.&quot;</em> <br>
+— Roy T. Bennett
 
 ### Connect with me:
 

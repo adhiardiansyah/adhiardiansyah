@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The more you feed your mind with positive thoughts, the more you can attract great things into your life.&quot;</em> <br>
-— Roy T. Bennett
+<em>&quot;After a day of hard work, reward yourself with moments of peace and joy. You deserve it.&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

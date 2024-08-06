@@ -43,6 +43,8 @@ const QUOTES_API = "https://zenquotes.io/api/quotes";
     
     ![Bootstrap](https://img.shields.io/badge/bootstrap%20-%23563D7C.svg?&style=for-the-badge&logo=bootstrap&logoColor=white) ![TailwindCSS](https://img.shields.io/badge/tailwindcss-%2338B2AC.svg?style=for-the-badge&logo=tailwind-css&logoColor=white)
     
+    ![MySQL](https://img.shields.io/badge/mysql-00758f.svg?style=for-the-badge&logo=mysql&logoColor=white) ![PostgreSQL](https://img.shields.io/badge/postgresql-%23316192.svg?style=for-the-badge&logo=postgresql&logoColor=white) ![DynamoDB](https://img.shields.io/badge/dynamodb-%233498DB.svg?style=for-the-badge&logo=amazon-dynamodb&logoColor=white) ![Elascticsearch](https://img.shields.io/badge/elasticsearch-%23005571.svg?style=for-the-badge&logo=elasticsearch&logoColor=white)
+
     ![Git](https://img.shields.io/badge/Git-F05032?style=for-the-badge&logo=git&logoColor=white) ![Docker](https://img.shields.io/badge/Docker-2291E6?style=for-the-badge&logo=docker&logoColor=white) ![Google Pub/Sub](https://img.shields.io/badge/google%20pub/sub%20-%23007ACC.svg?style=for-the-badge&logo=googlepubsub&logoColor=white)
     
     ---

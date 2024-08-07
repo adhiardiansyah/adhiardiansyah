@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Our attitude toward life determines life's attitude towards us.&quot;</em> <br>
+— Earl Nightingale
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;If we will be quiet and ready enough, we shall find compensation in every disappointment.&quot;</em> <br>
+— Henry David Thoreau
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The older you get, the better you get. Unless you're a banana.&quot;</em> <br>
+— Betty White
 
 ### Connect with me:
 

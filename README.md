@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The more rejection you get, the better you are, the more you've learned, the closer you are to your outcome.&quot;</em> <br>
+— Tony Robbins
 
 ### Connect with me:
 

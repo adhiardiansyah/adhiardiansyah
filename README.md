@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable.&quot;</em> <br>
+— Elon Musk
 
 ### Connect with me:
 

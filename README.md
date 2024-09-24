@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world.&quot;</em> <br>
+— Gabor Mate
 
 ### Connect with me:
 

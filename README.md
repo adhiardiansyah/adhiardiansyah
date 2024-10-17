@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Decide upon your major definite purpose in life and then organize all your activities around it.&quot;</em> <br>
+— Brian Tracy
 
 ### Connect with me:
 

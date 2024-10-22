@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Words can only have a positive effect on others if and when they are ready to listen.&quot;</em> <br>
+— Christopher Reeve
 
 ### Connect with me:
 

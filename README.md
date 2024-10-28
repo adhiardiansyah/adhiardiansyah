@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Words used to attract the dull of wit are not to be relied on.&quot;</em> <br>
+— Huang Po
 
 ### Connect with me:
 

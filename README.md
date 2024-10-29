@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Successful people tend to become more successful because they are always thinking about their successes.&quot;</em> <br>
+— Brian Tracy
 
 ### Connect with me:
 

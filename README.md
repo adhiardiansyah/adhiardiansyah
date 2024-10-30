@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Without education, we are in a horrible and deadly danger of taking educated people seriously.&quot;</em> <br>
+— Gilbert Chesterton
 
 ### Connect with me:
 

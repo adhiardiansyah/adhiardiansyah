@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;It is during our darkest moments that we must focus to see the light.&quot;</em> <br>
+— Aristotle
 
 ### Connect with me:
 

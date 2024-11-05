@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Stay away from people who makes you feel like you are wasting their time.&quot;</em> <br>
+— Paulo Coelho
 
 ### Connect with me:
 

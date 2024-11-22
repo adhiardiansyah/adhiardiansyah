@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Seek not the good in external things;seek it in yourselves.&quot;</em> <br>
+— Epictetus
 
 ### Connect with me:
 

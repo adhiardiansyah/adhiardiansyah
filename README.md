@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Be as fluid as water, do not give your enemies anything solid to attack.&quot;</em> <br>
+— Robert Greene
 
 ### Connect with me:
 

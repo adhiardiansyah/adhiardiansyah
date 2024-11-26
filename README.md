@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Sometimes you have to shut your eyes, so you can see the real beauty.&quot;</em> <br>
+— Kilian Jornet
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;You will never do anything in this world without courage. It is the greatest quality of the mind next to honor.&quot;</em> <br>
+— James Allen
 
 ### Connect with me:
 

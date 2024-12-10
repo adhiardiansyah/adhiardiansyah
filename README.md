@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;One of the advantages of being disorganized is that one is always having surprising discoveries.&quot;</em> <br>
+— A.A. Milne
 
 ### Connect with me:
 

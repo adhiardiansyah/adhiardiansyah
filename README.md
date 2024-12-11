@@ -5,7 +5,7 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
+<em>&quot;Being in a good frame of mind helps keep one in the picture of health.&quot;</em> <br>
 — Unknown
 
 ### Connect with me:

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Real loss is only possible when you love something more than you love yourself.&quot;</em> <br>
+— Robin Williams
 
 ### Connect with me:
 

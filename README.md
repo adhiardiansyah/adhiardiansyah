@@ -5,7 +5,7 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
+<em>&quot;Getting over a painful experience is much like crossing monkey bars. You have to let go at some point in order to move forward.&quot;</em> <br>
 — Unknown
 
 ### Connect with me:

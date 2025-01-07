@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Every morning is a new arrival.&quot;</em> <br>
-— Rumi
+<em>&quot;The only way to do great work is to love what you do.&quot;</em> <br>
+— Steve Jobs
 
 ### Connect with me:
 

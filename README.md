@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;There are two things a person should never be angry at, what they can help, and what they cannot.&quot;</em> <br>
+— Plato
 
 ### Connect with me:
 

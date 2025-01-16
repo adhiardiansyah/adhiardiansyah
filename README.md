@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Don't be pushed around by the fears in your mind. Be led by the dreams in your heart.&quot;</em> <br>
+— Roy T. Bennett
 
 ### Connect with me:
 

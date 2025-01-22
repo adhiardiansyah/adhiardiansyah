@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending.&quot;</em> <br>
+— Carl Bard
 
 ### Connect with me:
 

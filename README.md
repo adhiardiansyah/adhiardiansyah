@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;New opinions are always suspected, and usually opposed, without any other reason but because they are not common.&quot;</em> <br>
+— John Locke
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Give a man a fish and you feed him for a day. Teach a man to fish and you feed him for a lifetime.&quot;</em> <br>
+— Lao Tzu
 
 ### Connect with me:
 

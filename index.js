@@ -28,8 +28,8 @@ const QUOTES_API = "https://zenquotes.io/api/quotes";
     [<img align="left" alt="adhiardiansyah" width="22px" src="https://raw.githubusercontent.com/iconic/open-iconic/master/svg/globe.svg" />][website]
     [<img align="left" alt="Adhi Ardiansyah | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
     [<img align="left" alt="Adhi Ardiansyah | Instagram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />][instagram]
+    [<img align="left" alt="Adhi Ardiansyah | Tiktok" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/tiktok.svg" />][tiktok]
     [<img align="left" alt="Adhi Ardiansyah | YouTube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
-    [<img align="left" alt="Adhi Ardiansyah | Twitter" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />][twitter]
     
     <br />
     
@@ -56,10 +56,10 @@ const QUOTES_API = "https://zenquotes.io/api/quotes";
     <p align="center"><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=adhiardiansyah&" alt="adhiardiansyah" /></p>
     
     [website]: https://adhiardiansyah.github.io
-    [twitter]: https://twitter.com/adhiardiansyah_
-    [youtube]: https://www.youtube.com/@adhiardiansyah
-    [instagram]: https://instagram.com/adhi_ardiansyah
     [linkedin]: https://linkedin.com/in/adhiardiansyah
+    [instagram]: https://instagram.com/adhi_ardiansyah
+    [tiktok]: https://tiktok.com/@adhi_ardiansyah
+    [youtube]: https://www.youtube.com/@adhiardiansyah
   `;
 
   const content = md.renderInline(text);

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Those who bring sunshine into the lives of others cannot keep it from themselves.&quot;</em> <br>
+— James Matthew Barrie
 
 ### Connect with me:
 

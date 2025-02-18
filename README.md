@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The one who praises you is a thief. The one who criticizes you is your true friend.&quot;</em> <br>
+— Seungsahn
 
 ### Connect with me:
 

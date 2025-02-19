@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;You were born to win, but to be a winner, you must plan to win, prepare to win, expect to win.&quot;</em> <br>
+— Arnold Schwarzenegger
 
 ### Connect with me:
 

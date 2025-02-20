@@ -5,7 +5,7 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
+<em>&quot;Confidence comes not from always being right but not fearing to be wrong.&quot;</em> <br>
 — Unknown
 
 ### Connect with me:

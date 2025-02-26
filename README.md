@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;From the errors of others, a wise man corrects his own.&quot;</em> <br>
+— Publilius Syrus
 
 ### Connect with me:
 

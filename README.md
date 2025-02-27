@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Every experience is a lesson. Every loss is a gain.&quot;</em> <br>
+— Sathya Sai Baba
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Don't let the fear of losing be greater than the excitement of winning.&quot;</em> <br>
+— Robert Kiyosaki
 
 ### Connect with me:
 

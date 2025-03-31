@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;I would rather be a little nobody, then to be an evil somebody.&quot;</em> <br>
+— Abraham Lincoln
 
 ### Connect with me:
 

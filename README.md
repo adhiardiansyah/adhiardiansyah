@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The smallest act of kindness is worth more than the greatest intention.  &quot;</em> <br>
+— Kahlil Gibran
 
 ### Connect with me:
 

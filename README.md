@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;In order for you to be the BEST you can be for others, first you must be BEST for yourself.&quot;</em> <br>
+— Jeffrey Gitomer
 
 ### Connect with me:
 

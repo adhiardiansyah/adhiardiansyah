@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Superstars think like superstars long before the fans or the press anoint them.&quot;</em> <br>
+— John Eliot
 
 ### Connect with me:
 

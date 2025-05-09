@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner.&quot;</em> <br>
+— Sonia Ricotti
 
 ### Connect with me:
 

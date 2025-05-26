@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Men are equal; it is not birth but virtue that makes the difference.&quot;</em> <br>
+— Voltaire
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The spirit is beyond destruction. No one can bring an end to spirit which is everlasting.&quot;</em> <br>
+— Bhagavad Gita
 
 ### Connect with me:
 

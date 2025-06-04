@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Hope is not a strategy. Luck is not a factor. Fear is not an option.&quot;</em> <br>
+— James Cameron
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;You'll never find rainbows if you're looking down.  &quot;</em> <br>
+— Charlie Chaplin
 
 ### Connect with me:
 

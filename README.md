@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Night is a more quiet time to work. It aids thought.&quot;</em> <br>
+— Alexander Graham Bell
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Time is more valuable than money. You can get more money, but you cannot get more time.&quot;</em> <br>
+— Jim Rohn
 
 ### Connect with me:
 

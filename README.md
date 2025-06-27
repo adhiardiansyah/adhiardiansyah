@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Never let the fear of striking out keep you from playing the game.&quot;</em> <br>
+— Babe Ruth
 
 ### Connect with me:
 

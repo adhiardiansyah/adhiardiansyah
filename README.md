@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;All that a man achieves and all that he fails to achieve is the direct result of his own thoughts.&quot;</em> <br>
+— James Allen
 
 ### Connect with me:
 

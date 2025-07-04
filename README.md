@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;A good character is the best tombstone. Carve your name on hearts, not on marble.&quot;</em> <br>
+— Charles Spurgeon
 
 ### Connect with me:
 

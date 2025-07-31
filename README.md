@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Mistake is a mistake only if you make it twice.&quot;</em> <br>
+— Robin Sharma
 
 ### Connect with me:
 

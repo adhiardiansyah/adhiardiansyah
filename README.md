@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Man must use what he has, not hope for what is not.&quot;</em> <br>
+— G.I. Gurdjieff
 
 ### Connect with me:
 

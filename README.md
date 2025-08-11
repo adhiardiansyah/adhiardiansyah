@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;There is nothing in the world so irresistibly contagious as laughter and good humor.&quot;</em> <br>
+— Charles Dickens
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;It is not that we have too little time to do all the things we need to do , it is that we feel the need to do too many things in the time we have.&quot;</em> <br>
+— Gary Keller
 
 ### Connect with me:
 

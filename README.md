@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;You are not the drop in the ocean, but the ocean in the drop.&quot;</em> <br>
+— Deepak Chopra
 
 ### Connect with me:
 

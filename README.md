@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;There is no greatness where there is not simplicity, goodness, and truth.&quot;</em> <br>
+— Leo Tolstoy
 
 ### Connect with me:
 

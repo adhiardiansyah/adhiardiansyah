@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;If you care about someone enough, you'll always be there for them no matter what.&quot;</em> <br>
+— Roy T. Bennett
 
 ### Connect with me:
 

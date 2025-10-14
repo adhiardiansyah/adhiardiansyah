@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;If you can't, you must. If you must, you can.&quot;</em> <br>
+— Tony Robbins
 
 ### Connect with me:
 

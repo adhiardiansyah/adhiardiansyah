@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Charms strike the sight, but merit wins the soul.&quot;</em> <br>
+— Alexander Pope
 
 ### Connect with me:
 

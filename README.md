@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;What the mind can conceive, it can achieve.&quot;</em> <br>
+— Napoleon Hill
 
 ### Connect with me:
 

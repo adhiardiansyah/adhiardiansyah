@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The goal is not to be perfect by the end, the goal is to be better today.&quot;</em> <br>
+— Simon Sinek
 
 ### Connect with me:
 

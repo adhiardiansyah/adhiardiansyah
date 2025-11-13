@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Don't ever save anything for a special occasion. Being alive is the special occasion.&quot;</em> <br>
+— Mary Engelbreit
 
 ### Connect with me:
 

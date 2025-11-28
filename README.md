@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Thinking is the hardest work there is, which is probably the reason why so few engage in it.&quot;</em> <br>
+— Henry Ford
 
 ### Connect with me:
 

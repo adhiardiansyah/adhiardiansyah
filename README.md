@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Have the courage to follow your heart and intuition. They somehow know what you truly want to become.&quot;</em> <br>
+— Steve Jobs
 
 ### Connect with me:
 

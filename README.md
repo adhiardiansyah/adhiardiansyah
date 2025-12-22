@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The moment you stop to think about whether you love someone, you've already stopped loving that person forever.&quot;</em> <br>
+— Carlos Ruiz Zafon
 
 ### Connect with me:
 

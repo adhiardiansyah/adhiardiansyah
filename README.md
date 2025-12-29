@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The power of man has grown in every sphere, except over himself.&quot;</em> <br>
+— Winston Churchill
 
 ### Connect with me:
 

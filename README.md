@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Sometimes a change of perspective is all it takes to see the light.&quot;</em> <br>
+— Dan Brown
 
 ### Connect with me:
 

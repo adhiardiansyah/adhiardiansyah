@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Life is a process. We are a process. The universe is a process.&quot;</em> <br>
+— Anne Wilson Schaef
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The joy of life comes from our encounters with new experiences.&quot;</em> <br>
+— Christopher McCandless
 
 ### Connect with me:
 

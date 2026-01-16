@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The quality of your life is determined by the quality of questions you ask.&quot;</em> <br>
+— Tony Robbins
 
 ### Connect with me:
 

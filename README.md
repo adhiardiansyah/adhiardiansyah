@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;You need a plan to build a house. To build a life, it is even more important to have a plan or goal.&quot;</em> <br>
+— Zig Ziglar
 
 ### Connect with me:
 

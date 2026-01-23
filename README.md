@@ -1,12 +1,12 @@
-### Good night 😴
+### Happy weekend 🏝️
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Sleep well, always say thanks for yourself.&quot;</em> <br>
-— Adhi
+<em>&quot;Weekends are sacred for me. They're the perfect time to relax and spend time with family and friends.&quot;</em> <br>
+— Marcus Samuelsson
 
 ### Connect with me:
 

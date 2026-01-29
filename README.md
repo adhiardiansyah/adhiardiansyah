@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;You can easily judge the character of a man by how he treats those who can do nothing for him.&quot;</em> <br>
+— Johann Wolfgang von Goethe
 
 ### Connect with me:
 

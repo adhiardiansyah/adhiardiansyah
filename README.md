@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;To be able to forget means sanity.&quot;</em> <br>
-— Jack London
+<em>&quot;What one does is what counts. Not what one had the intention of doing.&quot;</em> <br>
+— Pablo Picasso
 
 ### Connect with me:
 

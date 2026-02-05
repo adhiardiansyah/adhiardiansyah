@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;We take care of the future best by taking care of the present now.&quot;</em> <br>
-— Jon Kabat-Zinn
+<em>&quot;Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy.&quot;</em> <br>
+— Celestine Chua
 
 ### Connect with me:
 

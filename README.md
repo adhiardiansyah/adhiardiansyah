@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Time is a game played beautifully by children.&quot;</em> <br>
-— Heraclitus
+<em>&quot;Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive.&quot;</em> <br>
+— Anne Wilson Schaef
 
 ### Connect with me:
 

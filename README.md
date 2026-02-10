@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;He who wishes to be obeyed must know how to command.&quot;</em> <br>
-— Niccolo Machiavelli
+<em>&quot;The most important battle is one to conquer yourself.&quot;</em> <br>
+— Yanni
 
 ### Connect with me:
 

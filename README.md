@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;He who wishes to be obeyed must know how to command.&quot;</em> <br>
+— Niccolo Machiavelli
 
 ### Connect with me:
 

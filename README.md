@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;All men are equal before fish.&quot;</em> <br>
-— Herbert Hoover
+<em>&quot;Poverty and hardship are created by false thinking.&quot;</em> <br>
+— Bodhidharma
 
 ### Connect with me:
 

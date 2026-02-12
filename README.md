@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Unless someone truly has the power to say no, they never truly have the power to say yes.&quot;</em> <br>
-— Dan Millman
+<em>&quot;Where the willingness is great, the difficulties cannot be great.&quot;</em> <br>
+— Niccolo Machiavelli
 
 ### Connect with me:
 

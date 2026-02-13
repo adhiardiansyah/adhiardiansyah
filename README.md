@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The difference between winning and losing is most often not quitting.&quot;</em> <br>
-— Walt Disney
+<em>&quot;Manifest plainness, embrace simplicity, reduce selfishness, have few desires.&quot;</em> <br>
+— Lao Tzu
 
 ### Connect with me:
 

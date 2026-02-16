@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Life is and will ever remain an equation incapable of solution, but it contains certain known factors. &quot;</em> <br>
-— Nikola Tesla
+<em>&quot;After a day of hard work, reward yourself with moments of peace and joy. You deserve it.&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

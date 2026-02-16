@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Love is merely the name for the desire and pursuit of the whole.&quot;</em> <br>
-— Aristophanes
+<em>&quot;Life is and will ever remain an equation incapable of solution, but it contains certain known factors. &quot;</em> <br>
+— Nikola Tesla
 
 ### Connect with me:
 

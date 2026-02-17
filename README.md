@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive.&quot;</em> <br>
+— Maxime Lagace
 
 ### Connect with me:
 

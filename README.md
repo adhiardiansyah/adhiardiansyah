@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;If we all did the things we are capable of doing, we would literally astound ourselves.&quot;</em> <br>
-— Thomas Edison
+<em>&quot;Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.&quot;</em> <br>
+— Helen Keller
 
 ### Connect with me:
 

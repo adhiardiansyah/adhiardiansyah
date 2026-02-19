@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Everything you've ever wanted is on the other side of fear.&quot;</em> <br>
-— George Addair
+<em>&quot;Be thankful for everything that happens in your life; it's all an experience.&quot;</em> <br>
+— Roy T. Bennett
 
 ### Connect with me:
 

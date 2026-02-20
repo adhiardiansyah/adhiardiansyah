@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Today will never happen again. Don't waste it with a false start or no start at all.&quot;</em> <br>
+— Og Mandino
 
 ### Connect with me:
 

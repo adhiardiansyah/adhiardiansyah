@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;I have never let my schooling interfere with my education.&quot;</em> <br>
-— Mark Twain
+<em>&quot;There is nothing in the world so irresistibly contagious as laughter and good humor.&quot;</em> <br>
+— Charles Dickens
 
 ### Connect with me:
 

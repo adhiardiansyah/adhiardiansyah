@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;All men who have achieved great things have been great dreamers. &quot;</em> <br>
-— Orison Swett Marden
+<em>&quot;The quality of your commitments will determine the course of your life.&quot;</em> <br>
+— Ralph Marston
 
 ### Connect with me:
 

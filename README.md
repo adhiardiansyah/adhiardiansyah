@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Most people achieved their greatest success one step beyond what looked like their greatest failure.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;The two most important days in your life are the day you are born and the day you find out why.&quot;</em> <br>
+— Mark Twain
 
 ### Connect with me:
 

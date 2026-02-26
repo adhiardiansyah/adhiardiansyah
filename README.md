@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Repetition does not transform a lie into a truth.&quot;</em> <br>
-— Franklin D. Roosevelt
+<em>&quot;Dance first. Think later. It's the natural order.&quot;</em> <br>
+— Samuel Beckett
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Repetition does not transform a lie into a truth.&quot;</em> <br>
+— Franklin D. Roosevelt
 
 ### Connect with me:
 

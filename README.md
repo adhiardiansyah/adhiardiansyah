@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Everything you look at can become a fairy tale and you can get a story from everything you touch.&quot;</em> <br>
+— Hans Christian Andersen
 
 ### Connect with me:
 

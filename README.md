@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;It's not the size of the dog in the fight, it's the size of the fight in the dog.&quot;</em> <br>
+— Mark Twain
 
 ### Connect with me:
 

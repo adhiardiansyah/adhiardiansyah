@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The universe doesn't give you what you ask for with your thoughts - it gives you what you demand with your actions.&quot;</em> <br>
+— Steve Maraboli
 
 ### Connect with me:
 

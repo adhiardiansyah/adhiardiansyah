@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Change begets change. Nothing propagates so fast.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;It's not what you've got; it's what you do that makes the difference.&quot;</em> <br>
+— Celestine Chua
 
 ### Connect with me:
 

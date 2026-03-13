@@ -5,7 +5,7 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
+<em>&quot;Learn to sit back and observe, not everything needs a reaction.&quot;</em> <br>
 — Unknown
 
 ### Connect with me:

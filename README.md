@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The truth is rarely pure and never simple. &quot;</em> <br>
-— Oscar Wilde
+<em>&quot;People become attached to their burdens sometimes more than the burdens are attached to them.&quot;</em> <br>
+— George Bernard Shaw
 
 ### Connect with me:
 

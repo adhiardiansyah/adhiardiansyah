@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The opportunity of defeating the enemy is provided by the enemy himself.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form.&quot;</em> <br>
+— Paramahansa Yogananda
 
 ### Connect with me:
 

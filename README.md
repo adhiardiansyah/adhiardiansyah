@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The less you try to impress, the more peaceful you can be.&quot;</em> <br>
-— Maxime Lagace
+<em>&quot;If you are going to achieve excellence in big things, you develop the habit in little matters.&quot;</em> <br>
+— Colin Powell
 
 ### Connect with me:
 

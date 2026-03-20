@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;We would accomplish many more things if we did not think of them as impossible.&quot;</em> <br>
+— Vince Lombardi
 
 ### Connect with me:
 

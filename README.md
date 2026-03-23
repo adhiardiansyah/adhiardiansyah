@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Fear can hold you prisoner. Hope can set you free.&quot;</em> <br>
-— Stephen King
+<em>&quot;When you are able to employ your will always for constructive purposes, you become the controller of your destiny.&quot;</em> <br>
+— Paramahansa Yogananda
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Most people dabble their way through life, never deciding to master anything in particular.&quot;</em> <br>
-— Tony Robbins
+<em>&quot;Silence is sometimes the best answer.&quot;</em> <br>
+— Dalai Lama
 
 ### Connect with me:
 

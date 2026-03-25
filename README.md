@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Darkness must pass. A new day will come. And when the sun shines, it will shine out the clearer.&quot;</em> <br>
-— J.R.R. Tolkien
+<em>&quot;Every man desires to live long, but no man wishes to be old.&quot;</em> <br>
+— Jonathan Swift
 
 ### Connect with me:
 

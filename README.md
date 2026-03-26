@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;It takes a very long time to become young.&quot;</em> <br>
-— Pablo Picasso
+<em>&quot;Growth is in a series of mistakes. That's the only way you learn.&quot;</em> <br>
+— Steve Harvey
 
 ### Connect with me:
 

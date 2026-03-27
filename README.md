@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;It isn't what you do, but how you do it.&quot;</em> <br>
-— John Wooden
+<em>&quot;We cannot change anything unless we accept it.&quot;</em> <br>
+— Carl Jung
 
 ### Connect with me:
 

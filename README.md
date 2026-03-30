@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;I can think of nothing less pleasurable than a life devoted to pleasure.&quot;</em> <br>
+— John D. Rockefeller
 
 ### Connect with me:
 

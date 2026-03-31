@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Motivation is what gets you started. Habit is what keeps you going.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Don't be afraid to give up the good to go for the great.&quot;</em> <br>
+— John D. Rockefeller
 
 ### Connect with me:
 

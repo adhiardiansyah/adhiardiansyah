@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;It is the greatest of all mistakes to do nothing because you can only do little; do something.&quot;</em> <br>
-— Sydney Smith
+<em>&quot;Opportunities don't often come along. So, when they do, you have to grab them.&quot;</em> <br>
+— Audrey Hepburn
 
 ### Connect with me:
 

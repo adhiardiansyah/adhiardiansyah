@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;If you spend too much time thinking about a thing, you'll never get it done. &quot;</em> <br>
+— Bruce Lee
 
 ### Connect with me:
 

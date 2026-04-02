@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;If you spend too much time thinking about a thing, you'll never get it done. &quot;</em> <br>
-— Bruce Lee
+<em>&quot;Nothing makes a man broad-minded like adversity.&quot;</em> <br>
+— Will Rogers
 
 ### Connect with me:
 

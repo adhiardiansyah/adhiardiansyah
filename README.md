@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Integrity is the ability to stand by an idea.&quot;</em> <br>
-— Ayn Rand
+<em>&quot;When one door closes another door opens. &quot;</em> <br>
+— Alexander Graham Bell
 
 ### Connect with me:
 

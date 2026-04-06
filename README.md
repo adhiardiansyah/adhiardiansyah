@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Don't think money does everything or you are going to end up doing everything for money.&quot;</em> <br>
-— Voltaire
+<em>&quot;Raise your words, not voice. It is rain that grows flowers, not thunder.&quot;</em> <br>
+— Rumi
 
 ### Connect with me:
 

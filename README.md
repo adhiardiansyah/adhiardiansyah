@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Our life isn't how much we can take out, but how much we can put in.  &quot;</em> <br>
-— Estee Lauder
+<em>&quot;Tradition is the illusion of permanence. &quot;</em> <br>
+— Woody Allen
 
 ### Connect with me:
 

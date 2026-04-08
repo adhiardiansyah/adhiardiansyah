@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Our life isn't how much we can take out, but how much we can put in.  &quot;</em> <br>
+— Estee Lauder
 
 ### Connect with me:
 

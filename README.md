@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;It is easier to fight for one's principles than to live up to them. &quot;</em> <br>
-— Alfred Adler
+<em>&quot;Make each day your masterpiece.&quot;</em> <br>
+— John Wooden
 
 ### Connect with me:
 

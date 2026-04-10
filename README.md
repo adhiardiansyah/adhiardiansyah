@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;People are not disturbed by things, but by the views they take of them.&quot;</em> <br>
+— Epictetus
 
 ### Connect with me:
 

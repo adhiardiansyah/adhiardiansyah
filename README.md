@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;People are not disturbed by things, but by the views they take of them.&quot;</em> <br>
-— Epictetus
+<em>&quot;Not engaging in ignorance is wisdom. &quot;</em> <br>
+— Bodhidharma
 
 ### Connect with me:
 

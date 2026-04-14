@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Any fool can turn a blind eye but who knows what the ostrich sees in the sand.&quot;</em> <br>
+— Samuel Beckett
 
 ### Connect with me:
 

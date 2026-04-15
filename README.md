@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;No one is useless in this world who lightens the burdens of another.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;Every great change is preceded by chaos.&quot;</em> <br>
+— Deepak Chopra
 
 ### Connect with me:
 

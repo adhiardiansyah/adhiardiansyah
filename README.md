@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Actions are the seeds of fate. Deeds grow into destiny.&quot;</em> <br>
-— Harry S. Truman
+<em>&quot;Judgments prevent us from seeing the good that lies beyond appearances.  &quot;</em> <br>
+— Wayne Dyer
 
 ### Connect with me:
 

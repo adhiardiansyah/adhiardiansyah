@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Living life in style also means living a life of balance.&quot;</em> <br>
-— Jim Rohn
+<em>&quot;Anger is an acid that can do more harm to the vessel in which it is stored than to anything on which it is poured.&quot;</em> <br>
+— Mark Twain
 
 ### Connect with me:
 

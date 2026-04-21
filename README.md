@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Insanity: doing the same thing over and over again and expecting different results.&quot;</em> <br>
-— Albert Einstein
+<em>&quot;Never buy a thing you do not want, because it is cheap, it will be dear to you.&quot;</em> <br>
+— Thomas Jefferson
 
 ### Connect with me:
 

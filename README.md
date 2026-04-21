@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Insanity: doing the same thing over and over again and expecting different results.&quot;</em> <br>
+— Albert Einstein
 
 ### Connect with me:
 

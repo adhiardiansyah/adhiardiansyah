@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Sometimes you have to shut your eyes, so you can see the real beauty.&quot;</em> <br>
-— Kilian Jornet
+<em>&quot;Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.&quot;</em> <br>
+— Richard Bach
 
 ### Connect with me:
 

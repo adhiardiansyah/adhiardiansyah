@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others.&quot;</em> <br>
+— Dalai Lama
 
 ### Connect with me:
 

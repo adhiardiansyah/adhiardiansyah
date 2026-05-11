@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Leaders think and talk about solutions. Followers think and talk about the problems.&quot;</em> <br>
-— Brian Tracy
+<em>&quot;Happiness is a quality of the soul...not a function of one's material circumstances.&quot;</em> <br>
+— Aristotle
 
 ### Connect with me:
 

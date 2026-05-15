@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The person who never made a mistake never tried anything new.&quot;</em> <br>
-— Albert Einstein
+<em>&quot;After a day of hard work, reward yourself with moments of peace and joy. You deserve it.&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

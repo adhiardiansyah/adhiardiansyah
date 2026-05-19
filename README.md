@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Work for something because it is good, not just because it stands a chance to succeed.&quot;</em> <br>
-— Vaclav Havel
+<em>&quot;Those who seek the easy way do not seek the true way.&quot;</em> <br>
+— Dogen
 
 ### Connect with me:
 

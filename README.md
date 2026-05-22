@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;He who is not contented with what he has, would not be contented with what he would like to have.&quot;</em> <br>
-— Socrates
+<em>&quot;Success is not how high you have climbed, but how you make a positive difference to the world.&quot;</em> <br>
+— Roy T. Bennett
 
 ### Connect with me:
 

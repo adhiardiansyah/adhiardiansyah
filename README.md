@@ -1,12 +1,12 @@
-### Good morning ☀️
+### Good afternoon 👋
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Every morning is a new arrival.&quot;</em> <br>
-— Rumi
+<em>&quot;When you reach the end of your rope, tie a knot in it and hang on.&quot;</em> <br>
+— Franklin D. Roosevelt
 
 ### Connect with me:
 

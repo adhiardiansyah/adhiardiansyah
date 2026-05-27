@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;One always begins to forgive a place as soon as it's left behind.&quot;</em> <br>
-— Charles Dickens
+<em>&quot;The day is for honest men, the night for thieves.&quot;</em> <br>
+— Euripides
 
 ### Connect with me:
 

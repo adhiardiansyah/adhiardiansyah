@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Desire is suffering.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;Those who realize their folly are not true fools.&quot;</em> <br>
+— Zhuangzi
 
 ### Connect with me:
 

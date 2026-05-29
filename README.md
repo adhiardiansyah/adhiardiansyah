@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;It is during our darkest moments that we must focus to see the light.&quot;</em> <br>
-— Aristotle
+<em>&quot;In a world of distraction, focusing is a superpower.&quot;</em> <br>
+— Ryan Holiday
 
 ### Connect with me:
 

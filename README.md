@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;My definition of success is control.&quot;</em> <br>
-— Kenneth Branagh
+<em>&quot;If you cannot control your emotions, you cannot control your money.&quot;</em> <br>
+— Warren Buffett
 
 ### Connect with me:
 

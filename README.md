@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;If you are far from the enemy, make him believe you are near.&quot;</em> <br>
-— Sun Tzu
+<em>&quot;Resting today prepares you for a better tomorrow.&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

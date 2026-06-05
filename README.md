@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Do your duty and a little more and the future will take care of itself.&quot;</em> <br>
-— Andrew Carnegie
+<em>&quot;If you are far from the enemy, make him believe you are near.&quot;</em> <br>
+— Sun Tzu
 
 ### Connect with me:
 

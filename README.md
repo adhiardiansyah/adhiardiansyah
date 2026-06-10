@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Success is not final, failure is not fatal: it is the courage to continue that counts.&quot;</em> <br>
-— Winston Churchill
+<em>&quot;The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.&quot;</em> <br>
+— Colin R. Davis
 
 ### Connect with me:
 

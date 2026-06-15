@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good night 😴
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Success does not consist in never making mistakes but in never making the same one a second time.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;Sleep well, always say thanks for yourself.&quot;</em> <br>
+— Adhi
 
 ### Connect with me:
 

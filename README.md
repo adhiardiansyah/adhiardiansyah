@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;If the misery of the poor be caused not by the laws of nature, but by our institutions, great is our sin.&quot;</em> <br>
-— Charles Darwin
+<em>&quot;Resting today prepares you for a better tomorrow.&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

@@ -1,11 +1,11 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day!&quot;</em> <br>
+<em>&quot;Failure is the highway to success.&quot;</em> <br>
 — Og Mandino
 
 ### Connect with me:

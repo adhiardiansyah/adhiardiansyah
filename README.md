@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Everyone you meet is fighting a battle you know nothing about. Be kind. Always.&quot;</em> <br>
-— Robin Williams
+<em>&quot;Before preparing to improve the world, first look around your own home three times.&quot;</em> <br>
+— Chinese Proverb
 
 ### Connect with me:
 

@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The goal of an artist is to create the definitive work that cannot be surpassed.&quot;</em> <br>
-— George Bernard Shaw
+<em>&quot;Always try to be a little kinder than necessary.&quot;</em> <br>
+— James Matthew Barrie
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The quicker you let go of old cheese, the sooner you find new cheese.&quot;</em> <br>
-— Spencer Johnson
+<em>&quot;Resting today prepares you for a better tomorrow.&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Numbing the pain for a while will make it worse when you finally feel it.&quot;</em> <br>
-— Albus Dumbledore
+<em>&quot;It is not uncommon for people to spend their whole life waiting to start living.&quot;</em> <br>
+— Eckhart Tolle
 
 ### Connect with me:
 

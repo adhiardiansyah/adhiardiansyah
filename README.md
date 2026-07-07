@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The future depends on what you do today.&quot;</em> <br>
-— Mahatma Gandhi
+<em>&quot;The first step is to establish that something is possible; then probability will occur.&quot;</em> <br>
+— Elon Musk
 
 ### Connect with me:
 

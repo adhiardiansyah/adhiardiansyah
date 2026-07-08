@@ -5,7 +5,7 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;If the plan doesn't work, change the plan, but never the goal.&quot;</em> <br>
+<em>&quot;After a day of hard work, reward yourself with moments of peace and joy. You deserve it.&quot;</em> <br>
 — Unknown
 
 ### Connect with me:

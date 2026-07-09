@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Know your gifts and share them.&quot;</em> <br>
-— Les Brown
+<em>&quot;Everybody by your side ain't on your side.&quot;</em> <br>
+— Steve Harvey
 
 ### Connect with me:
 

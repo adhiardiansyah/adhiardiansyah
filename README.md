@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Everybody by your side ain't on your side.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;Resting today prepares you for a better tomorrow.&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;There are only encounters in history. There are no accidents.&quot;</em> <br>
-— Pablo Picasso
+<em>&quot;The more something threatens your identity, the more you will avoid it.&quot;</em> <br>
+— Mark Manson
 
 ### Connect with me:
 

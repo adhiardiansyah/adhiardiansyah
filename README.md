@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy.&quot;</em> <br>
-— Celestine Chua
+<em>&quot;After a day of hard work, reward yourself with moments of peace and joy. You deserve it.&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

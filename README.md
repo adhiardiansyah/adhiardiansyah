@@ -5,7 +5,7 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Every day may not be good, but there's something good in every day.&quot;</em> <br>
+<em>&quot;After a day of hard work, reward yourself with moments of peace and joy. You deserve it.&quot;</em> <br>
 — Unknown
 
 ### Connect with me:

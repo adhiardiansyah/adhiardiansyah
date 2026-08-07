@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The saddest aspect of life is that there is no one on earth whose happiness is such that he won't sometimes wish he were dead rather than alive.&quot;</em> <br>
-— Herodotus
+<em>&quot;When you move beyond your fear, you feel free.&quot;</em> <br>
+— Spencer Johnson
 
 ### Connect with me:
 

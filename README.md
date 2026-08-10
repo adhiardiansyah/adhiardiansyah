@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Nature does not hurry, yet everything is accomplished.&quot;</em> <br>
-— Lao Tzu
+<em>&quot;A fear of weakness only strengthens weakness.&quot;</em> <br>
+— Criss Jami
 
 ### Connect with me:
 

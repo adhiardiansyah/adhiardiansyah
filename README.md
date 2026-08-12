@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;You can't go forward and backwards at the same time.&quot;</em> <br>
-— Steve Harvey
+<em>&quot;Embody what you teach, and teach only what you have embodied.&quot;</em> <br>
+— Dan Millman
 
 ### Connect with me:
 

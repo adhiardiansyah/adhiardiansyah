@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Nothing like a health problem to turn up the contrast dial for the rest of life.&quot;</em> <br>
-— Naval Ravikant
+<em>&quot;Obstacles are those frightful things you see when you take your eyes off your goals.&quot;</em> <br>
+— Sydney Smith
 
 ### Connect with me:
 

@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;Nothing like a health problem to turn up the contrast dial for the rest of life.&quot;</em> <br>
+— Naval Ravikant
 
 ### Connect with me:
 

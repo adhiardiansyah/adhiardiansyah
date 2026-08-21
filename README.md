@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The greatest of all mistakes is to do nothing because you think you can only do a little.&quot;</em> <br>
+— Zig Ziglar
 
 ### Connect with me:
 

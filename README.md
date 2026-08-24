@@ -5,8 +5,8 @@
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
-— Unknown
+<em>&quot;The greatest deception men suffer is from their own opinions.&quot;</em> <br>
+— Leonardo da Vinci
 
 ### Connect with me:
 

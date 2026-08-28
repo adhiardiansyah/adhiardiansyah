@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Happy weekend 🏝️
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything.&quot;</em> <br>
-— Sydney Smith
+<em>&quot;Weekends are sacred for me. They're the perfect time to relax and spend time with family and friends.&quot;</em> <br>
+— Marcus Samuelsson
 
 ### Connect with me:
 

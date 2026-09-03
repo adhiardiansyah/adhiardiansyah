@@ -1,12 +1,12 @@
-### Good morning ☀️
+### Good afternoon 👋
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The only way to do great work is to love what you do.&quot;</em> <br>
-— Steve Jobs
+<em>&quot;Originality is the fine art of remembering what you hear but forgetting where you heard it.&quot;</em> <br>
+— Laurence J. Peter
 
 ### Connect with me:
 

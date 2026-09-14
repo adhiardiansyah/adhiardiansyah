@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good night 😴
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;To succeed takes more than the desire to win. It also takes the acceptance that we could fail.&quot;</em> <br>
-— Simon Sinek
+<em>&quot;Sleep well, always say thanks for yourself.&quot;</em> <br>
+— Adhi
 
 ### Connect with me:
 

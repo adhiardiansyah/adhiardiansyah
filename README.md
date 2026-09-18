@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Get busy living, or get busy dying.&quot;</em> <br>
-— Stephen King
+<em>&quot;Resting today prepares you for a better tomorrow.&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

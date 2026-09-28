@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good night 😴
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return.&quot;</em> <br>
-— Nelson Mandela
+<em>&quot;Sleep well, always say thanks for yourself.&quot;</em> <br>
+— Adhi
 
 ### Connect with me:
 

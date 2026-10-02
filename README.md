@@ -1,12 +1,12 @@
-### Good morning ☀️
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;The only way to do great work is to love what you do.&quot;</em> <br>
-— Steve Jobs
+<em>&quot;Failure is not fatal, but failure to change might be.&quot;</em> <br>
+— John Wooden
 
 ### Connect with me:
 

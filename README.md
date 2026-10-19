@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good night 😴
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;There are no secrets to success. It is the result of preparation, hard work, and learning from failure.&quot;</em> <br>
-— Colin Powell
+<em>&quot;Sleep well, always say thanks for yourself.&quot;</em> <br>
+— Adhi
 
 ### Connect with me:
 

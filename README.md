@@ -1,12 +1,12 @@
-### Good afternoon 👋
+### Good night 😴
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;You purchase pain with all that joy can give and die of nothing but a rage to live.&quot;</em> <br>
-— Alexander Pope
+<em>&quot;Sleep well, always say thanks for yourself.&quot;</em> <br>
+— Adhi
 
 ### Connect with me:
 

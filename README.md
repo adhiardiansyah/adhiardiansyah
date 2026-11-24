@@ -1,12 +1,12 @@
-### Good evening ☕
+### Good morning ☀️
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Resting today prepares you for a better tomorrow.&quot;</em> <br>
-— Unknown
+<em>&quot;The only way to do great work is to love what you do.&quot;</em> <br>
+— Steve Jobs
 
 ### Connect with me:
 

@@ -1,12 +1,12 @@
-### Good night 😴
+### Good afternoon 👋
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Sleep well, always say thanks for yourself.&quot;</em> <br>
-— Adhi
+<em>&quot;The key to productivity is balance. Don't skip your lunch break!&quot;</em> <br>
+— Unknown
 
 ### Connect with me:
 

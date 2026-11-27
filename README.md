@@ -1,12 +1,12 @@
-### Good morning ☀️
+### Good evening ☕
 ## Hello, my name is Adhi Ardiansyah 👋
 
 - 💻 I'm interested in software development.
 - ✉️ Contact me on adhiardiansyah23@gmail.com!
 
 ### Quote of the day:
-<em>&quot;Every morning is a new arrival.&quot;</em> <br>
-— Rumi
+<em>&quot;This is the most simple and basic component of life: our struggles determine our successes.&quot;</em> <br>
+— Mark Manson
 
 ### Connect with me:
 
